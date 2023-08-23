@@ -22,3 +22,14 @@ January 2015 – June 2017 **Skills**    Call Center Supervisor at Lody's, Beiru
         - Business Management efficiently.
 
 November 2023 – Present **Education Background**    Manager at Argile Online Beirut![](Aspose.Words.3c71307f-106d-450d-bc51-ead88f1de612.013.png)
+`  `January 2017 – September
+
+2023
+
+`    `Lebanese International      University, Beirut Bachelor Of Sciences in Information       Technology.
+
+`    `Graduated with Good
+
+Standing.
+
+![](Aspose.Words.3c71307f-106d-450d-bc51-ead88f1de612.014.png)
