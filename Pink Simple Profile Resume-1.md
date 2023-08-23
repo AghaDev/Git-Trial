@@ -31,5 +31,8 @@ November 2023 – Present **Education Background**    Manager at Argile Online B
 `    `Graduated with Good
 
 Standing.
+![Profile Image](Moe.jpg)
 
 ![](Aspose.Words.3c71307f-106d-450d-bc51-ead88f1de612.014.png)
+
+
